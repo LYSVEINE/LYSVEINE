@@ -1,16 +1,14 @@
-## Hi there 👋
+![divider creds to .co/helltaker ](https://files.catbox.moe/x4awcr.png)
+###  ╬═⠀ABOUT *LOVEINE*⠀![🩸](https://files.catbox.moe/qupc0s.gif)⠀❝
 
-<!--
-**LYSVEINE/LYSVEINE** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+━━╋━ ![♡](https://files.catbox.moe/9mermf.gif) **Hihi, My name is Loveine! You can also just call me by my fav character's names or the cospony I'm using at the moment. I don't mind! I'm seventeen (17). My birthday is on march 9th and I'm a pisces! ^w^ I use any pronouns! I'm also pronounfluid. Currently, I preferably want to be called they/she and my neopronouns. But any others are also ok! As I said, I don't care but this preference might change anytime. Read my** ***[prns.cc](https://pronouns.cc/@LYSVEINE)*** **for more info! I try to keep both here and there updated with my current preferences! ^_^  ㅤ𝆤 †**
 
-Here are some ideas to get you started:
+━━╋━ ![♡](https://files.catbox.moe/wu05ak.gif) **DNI ;** ***My DNI is [the basic criteria](https://dni-criteria.carrd.co/).*** **I don't care about what you enjoy in fiction at all, but refrain from interacting if you like loli/shota, minor x adult, incest, and so on as it makes me uncomfortable. DNI if you're anti-mogai/xenogender, support transids, doubles of my *fictkins*, and if you talk about hating my favorite characters randomly. If we're talking about the media or a specific character you dislike, mentioning you dislike them is totally okay for me! But if I say / post something about my favs, specially if it's not sent to you, refrain from saying you hate them. It's annoying and I don't care if you hate my favs at all, really!ㅤ𝆤 𖹭**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+━━╋━ ![♡](https://files.catbox.moe/9mermf.gif) **BYI; *I'm a socially awkard person.* I have a hard time interacting with new people at first and at making small talk, so I'll most likely talk with people I share the same interets with since it's the best way for me to comfortably talk with someone I just met! Tonetags are appreciated, but if you don't use them, I'll probably ask the tone of some messages. "^_^ㅤ𝆤 †**
+
+━━╋━ ![♡](https://files.catbox.moe/wu05ak.gif) **I change interests frequently! ^_^" Forsaken & Roblox are currently my biggest interests! I also like Die Of Death, Forsaken but More, PWned by 14:00, Dandy's World, Save Robloxia, Outlaws of Robloxia, The Robloxia Until Dawn and other games! Some of my other interests are: Gacha games, Monster High, Ever After High, Barbie, Rainbow High, Bungo Stray Dogs, Kuroshitsuji, Precure, Epic The Musical, Hadestown, Yuumori and Alice in Wonderland. I also like some other things like dolls, makeup, fashion, subcultures, horror, history and true crime (and any games that include saving robloxia.)ㅤ𝆤 𖹭**
+
+━━╋━ ![♡](https://files.catbox.moe/9mermf.gif) **I use she/her & they/them on various characters and also headcannon them as girls, like 1x7. If you correct me knowing about this, I'll block you You don't have to agree with me, just respect my headcannons. ㅤ𝆤 †**
+
+![divider creds to .co/helltaker](https://files.catbox.moe/xdwjzk.png)
